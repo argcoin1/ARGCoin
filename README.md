@@ -1,0 +1,2 @@
+# ARGCoin
+The Future 
